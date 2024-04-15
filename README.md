@@ -1,2 +1,1 @@
-### 💫 About Me:
-⭐ Studying CS.
+🐸
